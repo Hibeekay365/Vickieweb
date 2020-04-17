@@ -1,4 +1,5 @@
-HOPE
+                        HOPE
+
 The day is dark and way seems narrow at the entrance of the pandemic, survival was the next thought of the mind.
 
 To avoid ditch fall, men were isolated, quarantined in their respective homes, in their own comfort. Some people get to listen well, mediate well, rest more, exercise better, bond firmly, get more creative.
