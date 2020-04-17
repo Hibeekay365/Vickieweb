@@ -1,4 +1,4 @@
-                        HOPE
+                                   HOPE
 
 The day is dark and way seems narrow at the entrance of the pandemic, survival was the next thought of the mind.
 
@@ -15,4 +15,6 @@ Yes, You! The fragrance of your smile and laughter ligthen up the world,i mean, 
 Radiate your light to others, their healing lies in those encouraging words, on those love and outstretched arms of comfort, healing falls on people, the world rejoice as we build a world of hope free from the Pandemic Covid 19.
 
 STAY SAFE
+
+
 OGUNBAJO IBUKUNOLA VICTORIA
